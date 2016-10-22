@@ -7,8 +7,4 @@ Enjoy your stay.
 
 
 
-http://babbletxt.com/
 
-http://scs.ryerson.ca/~rymok/lab2v7.html
-
-http://scs.ryerson.ca/~rymok/lab3v2.html
